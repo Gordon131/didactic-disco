@@ -1,1 +1,9 @@
 # didactic-disco
+git melody
+git i
+git hear
+git is
+git some
+git kind
+hit of
+git harmony
